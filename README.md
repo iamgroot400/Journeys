@@ -1,0 +1,2 @@
+# Journeys
+Best Minecraft SMP
